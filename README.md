@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Areeba Hashmi
-- 👀 I’m interested in Hasnain Khan 21SW114 i also call him Hassu💖.
-- 🌱 I’m currently learning how to get away from Ainab snake
-- 💞️ I’m looking to collaborate with Rafay to make our spam account much more creative and aesthetic!
+- 👀 I’m interested in Coding.
+- 🌱 I’m currently learning how to get away from 
+- 💞️ I’m looking to collaborate with
 - 📫 How to reach me - let's be honest you can't reach me i'm way out of your league!
 
 <!---
